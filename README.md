@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ta-pokareva21.github.io/rsschool-cv/cv
